@@ -3,7 +3,11 @@
 - 🌱 I’m currently learning ...programming languages
 - 💞️ I’m looking to collaborate on ..technical projects.
 - 📫 How to reach me .victoryvikas12@gmail.com..
+
+
 I work on projects that are interesting and exciting in nature and which are also fun to work with.
+
+i help people to manage their life without fussing too much about their existing circumstances.
 
 
 <!---
