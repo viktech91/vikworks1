@@ -7,7 +7,7 @@
 
 I work on projects that are interesting and exciting in nature and which are also fun to work with.
 
-i help people to manage their life without fussing too much about their existing circumstances.
+I help people to manage their life without fussing too much about their existing circumstances.
 
 What is interesting about me is that I welcome the opinions and suggestions of people for improving the content of my site.
 
