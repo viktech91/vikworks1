@@ -9,6 +9,8 @@ I work on projects that are interesting and exciting in nature and which are als
 
 i help people to manage their life without fussing too much about their existing circumstances.
 
+What is interesting about me is that I welcome the opinions and suggestions of people for improving the content of my site.
+
 
 <!---
 vikworks1/vikworks1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
